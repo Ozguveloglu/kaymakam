@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/ana-sayfa/biz-kimiz/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/ana-sayfa/biz-kimiz/","tags":["gardenEntry"],"noteIcon":""}
 ---
 
 Bu Ali Rıza Bayram'ın Yükseliş Konutları Test sayfasıdır.
