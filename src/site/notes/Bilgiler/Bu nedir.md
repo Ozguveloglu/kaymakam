@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/bilgiler/bu-nedir/","tags":["gardenEntry"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/bilgiler/bu-nedir/","noteIcon":""}
 ---
 
 Zemin katta yer alan 3+1 tipindeki dairenin brüt alanı 130 metrekare, net alanı ise 117 metrekare  
