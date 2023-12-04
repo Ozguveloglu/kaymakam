@@ -1,7 +1,6 @@
 ---
-{"dg-publish":true,"permalink":"/0-oezgueveloglu/oezgueveloglu-yuekselis-konutlari-projesi/","tags":["gardenEntry"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/0-oezgueveloglu/oezgueveloglu-yuekselis-konutlari-projesi/","tags":["gardenEntry"]}
 ---
-
 
 
 Hayalinizdeki evi bulmanın ne kadar önemli olduğunu biliyoruz ve bu nedenle sizin için Özgüveloğlu İnşaat ve FSM Yapı tarafından hayata geçirilen Yükseliş Konutları projesinde bir araya geldik. Bu ortak kuruluş, yılların deneyimine sahip iki güçlü firma tarafından oluşturulmuştur ve tam da sizin ihtiyaçlarınıza yönelik tasarlanmıştır.
