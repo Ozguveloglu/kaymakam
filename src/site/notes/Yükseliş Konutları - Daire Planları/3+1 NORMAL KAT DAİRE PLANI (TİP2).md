@@ -28,7 +28,7 @@
 - **Balkon 3:** 8.00 metrekarelik bir alana sahiptir.
 - **Hol:** 2.45 metrekarelik bir alana sahiptir.
 
-**Açıklamalar:**
+**Açıklama:**
 
 - **Daire, ailesiyle yaşamak isteyenler için oldukça geniş ve kullanışlı bir seçenek sunmaktadır.**
 
