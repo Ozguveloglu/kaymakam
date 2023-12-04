@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/yuekselis-konutlari-daire-planlari/3-1-normal-kat-daire-plani-tip-2/","tags":["gardenEntry"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/yuekselis-konutlari-daire-planlari/3-1-normal-kat-daire-plani-tip-2/","noteIcon":""}
 ---
 
 ![Pasted image 20231204022121.png](/img/user/Resim%20Ar%C5%9Fivi/Pasted%20image%2020231204022121.png)
