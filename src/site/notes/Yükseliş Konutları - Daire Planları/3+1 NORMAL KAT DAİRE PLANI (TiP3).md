@@ -15,8 +15,6 @@ Ayrıca, modern ve kullanışlı mutfağı ile yemek yapmak keyifli hale gelecek
 - **Odalar:** 3 yatak odası, 1 salon, 1 mutfak, 1 banyo, 1 duş, 2 balkon
 - **Alanlar:** Brüt 128 metrekare, net 117 metrekare
 
-**Açıklama**
-
 Bu daire planı, ailesiyle yaşamak isteyenler için oldukça geniş ve kullanışlı bir seçenek sunuyor. 
 
 Geniş salonu ve 3 yatak odası ile herkese rahat bir yaşam alanı sağlıyor. Modern ve kullanışlı mutfağı ile yemek yapmak keyifli hale gelecek. Banyo ve duş olanakları da, günlük hayatınızı daha konforlu hale getirmek için düşünüldü. Balkonlar da, manzarayı izlerken rahatlamanız için özenle tasarlandı.
@@ -24,7 +22,5 @@ Geniş salonu ve 3 yatak odası ile herkese rahat bir yaşam alanı sağlıyor. 
 **İletişim**
 
 Daha fazla bilgi için ve herhangi bir sorunuz olursa, iletişim profilimizde yer alan iletişim numara ve eposta adreslerimizden bizimle iletişime geçebilirsiniz.
-
-**Davet**
 
 Evinizin her bir köşesinde size huzur verecek detaylarıyla hayatınızı güzelleştirecek bir daire arıyorsanız, sizleri daire planlarımızı incelemeye davet ediyoruz. Sunduğumuz her bir dairenin özellikleri, konforlu ve estetik bir yaşam için düşünülerek tasarlandı. Hemen siz de bize katılın, hayalinizdeki evde yaşamaya başlayın.
