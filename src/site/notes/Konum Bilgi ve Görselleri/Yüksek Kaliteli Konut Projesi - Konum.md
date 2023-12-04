@@ -6,9 +6,14 @@
 
 Hayallerinizi süsleyen evinizi bulmak için adım adım size rehberlik ediyoruz! Yükseklik Konutları'nın sakin ve nezih yaşam alanı, konumu ile de ön plana çıkıyor. 23 Nisan Cad. ve 19 Mayıs Belediyesi Cad. arasında yer alan konumumuz, çevresindeki sağlık kuruluşları, okullar, camiler, pazar alanları ve sanayi siteleriyle sizin ihtiyaçlarınıza hızlı bir şekilde yanıt verebiliyor.  
   
-Yüksek kaliteli konut projemiz, 23 Nisan Caddesi'nde bulunmaktadır. Yakınlarda Kapalı Pazar Alanı ve 19 Mayıs Belediyesi Cadde'si yer almaktadır. Pazar Mahallesi'ndeki Cami, Akif Namık Kemal Sokak, Cumhuriyet İlkokulu, Akşemsettin Cami, Mimoza Sokak, Sanatkar Sokak ve Kamelya Sokak'a kolayca erişilebilir. Ayrıca, Atatürk Ortaokulu, Ballıca 60. Yıl Çok Programlı Anadolu Lisesi ve Sağlık Ocağı da yakındadır.
+Yüksek kaliteli konut projemiz, 23 Nisan Caddesi'nde bulunmaktadır. Yakınlarda Kapalı Pazar Alanı ve 19 Mayıs Belediyesi Cadde'si yer almaktadır. 
+
+Pazar Mahallesi'ndeki Cami, Akif Namık Kemal Sokak, Cumhuriyet İlkokulu, Akşemsettin Cami, Mimoza Sokak, Sanatkar Sokak ve Kamelya Sokak'a kolayca erişilebilir. 
+
+Ayrıca, Atatürk Ortaokulu, Ballıca 60. Yıl Çok Programlı Anadolu Lisesi ve Sağlık Ocağı da yakındadır.
 
 Kapsamlı bir şekilde tasarlanmış konutlarımız, modern ve konforlu yaşam alanları sunuyor. 
+
 Kendinizi özel hissedeceğiniz dairelerimiz, yüksek tavanlar ve geniş pencerelerle daha aydınlık ve ferah bir ortam sağlıyor.
 
 Yükseliş Konutları ile yepyeni bir hayata merhaba demek için detaylı bilgi ve satış ofisimize ulaşabilirsiniz. 
