@@ -12,7 +12,7 @@ Sizlere hizmet etmek için buradayız ve bizimle iletişime geçmekten çekinmey
 
 Özgüveloğlu İnşaat:
 
-TEL: 0536 338 9195 - 0539 336 82 97
+TEL: 0536 338 9195 
 
 ADRES: Yükseliş Mahallesi Atatürk Bulvarı No:25314 19 Mayıs/ Samsun
 
