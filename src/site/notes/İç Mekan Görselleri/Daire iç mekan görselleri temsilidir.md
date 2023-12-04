@@ -8,5 +8,7 @@
 
 
 Daire iç mekan görselleri temsilidir. Dekorasyon ürünleri ve aksesuarlar satışa dahil değildir.
+
 Detaylı bilgi için iletişim profilimizde yer alan iletişim numara ve adreslerinden bizlere ulaşabilirsiniz. 
+
 Geniş ve ferah iç mekanların keyfini sürebileceğiniz bu harika daire için hemen bizimle iletişime geçin!
