@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/konum-bilgi-ve-goerselleri/yueksek-kaliteli-konut-projesi-konum/","noteIcon":""}
+{"dg-publish":true,"permalink":"/konum-bilgi-ve-goerselleri/yueksek-kaliteli-konut-projesi-konum/"}
 ---
 
 ![Pasted image 20231204023103.png](/img/user/Resim%20Ar%C5%9Fivi/Pasted%20image%2020231204023103.png)
