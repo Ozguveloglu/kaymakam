@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/yuekselis-konutlari-daire-planlari/3-1-zemin-kat-daire-plani-ti-p3/","noteIcon":""}
+{"dg-publish":true,"permalink":"/yuekselis-konutlari-daire-planlari/3-1-zemin-kat-daire-plani-ti-p3/","tags":["gardenEntry"],"noteIcon":""}
 ---
 
 
