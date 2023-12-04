@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/ic-mekan-goerselleri/daire-ic-mekan-goerselleri-temsilidir/","noteIcon":""}
+{"dg-publish":true,"permalink":"/ic-mekan-goerselleri/daire-ic-mekan-goerselleri-temsilidir/"}
 ---
 
 
