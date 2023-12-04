@@ -6,7 +6,9 @@
 
 **Daire Planı**
 
-Bu muhteşem daire planı, 3 yatak odası ve geniş bir salon ile herkese hitap eden bir yaşam alanı sunuyor. Ayrıca, modern ve kullanışlı mutfağı ile yemek yapmak keyifli hale gelecek. Banyo ve duş olanakları da, günlük hayatınızı daha konforlu hale getirmek için düşünüldü. Balkonlar da, manzarayı izlerken rahatlamanız için özenle tasarlandı.
+Bu muhteşem daire planı, 3 yatak odası ve geniş bir salon ile herkese hitap eden bir yaşam alanı sunuyor. 
+
+Ayrıca, modern ve kullanışlı mutfağı ile yemek yapmak keyifli hale gelecek. Banyo ve duş olanakları da, günlük hayatınızı daha konforlu hale getirmek için düşünüldü. Balkonlar da, manzarayı izlerken rahatlamanız için özenle tasarlandı.
 
 **Detaylar**
 
@@ -15,7 +17,9 @@ Bu muhteşem daire planı, 3 yatak odası ve geniş bir salon ile herkese hitap 
 
 **Açıklama**
 
-Bu daire planı, ailesiyle yaşamak isteyenler için oldukça geniş ve kullanışlı bir seçenek sunuyor. Geniş salonu ve 3 yatak odası ile herkese rahat bir yaşam alanı sağlıyor. Modern ve kullanışlı mutfağı ile yemek yapmak keyifli hale gelecek. Banyo ve duş olanakları da, günlük hayatınızı daha konforlu hale getirmek için düşünüldü. Balkonlar da, manzarayı izlerken rahatlamanız için özenle tasarlandı.
+Bu daire planı, ailesiyle yaşamak isteyenler için oldukça geniş ve kullanışlı bir seçenek sunuyor. 
+
+Geniş salonu ve 3 yatak odası ile herkese rahat bir yaşam alanı sağlıyor. Modern ve kullanışlı mutfağı ile yemek yapmak keyifli hale gelecek. Banyo ve duş olanakları da, günlük hayatınızı daha konforlu hale getirmek için düşünüldü. Balkonlar da, manzarayı izlerken rahatlamanız için özenle tasarlandı.
 
 **İletişim**
 
