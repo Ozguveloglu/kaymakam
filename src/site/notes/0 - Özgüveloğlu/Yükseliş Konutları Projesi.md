@@ -17,11 +17,7 @@ Sizlere hizmet etmek için buradayız ve bizimle iletişime geçmekten çekinmey
 
 Özgüveloğlu İnşaat:
 
-[![Pasted image 20231208203705.png|40x40](/img/user/Pasted%20image%2020231208203705.png)](https://www.instagram.com/ozguveloglu/)
-
-
-
-
+<font color="#ffc000">İnstagram:</font> [![Pasted image 20231208203705.png|10x10](/img/user/Pasted%20image%2020231208203705.png)](https://www.instagram.com/ozguveloglu/)
 
 
 
